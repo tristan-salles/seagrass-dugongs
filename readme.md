@@ -1,4 +1,4 @@
-# Effects of Climate Change as Environmental Pressures of Dugong dugon strandings in the Great Barrier Reef
+# Effects of Climate Change as Environmental Pressures of Dugong strandings in the Great Barrier Reef
 
 <img src="https://user-images.githubusercontent.com/7201912/197075152-068d0d01-706d-4753-9448-f86a643fa031.png" width="250">
 
